@@ -1,1 +1,1 @@
-![Learn With me](https://github.com/sneekyfoxx/learn-withme/assets/100389302/88ca5db6-6fba-436d-afc6-9d0b853e684c)
+![LEARN WITH ME](https://github.com/sneekyfoxx/learn-withme/assets/100389302/393c7448-27fe-4e89-a5c5-f7018da6303a)
